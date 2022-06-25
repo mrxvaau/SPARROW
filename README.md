@@ -1,6 +1,6 @@
 ![GOLDENSPARROW](https://user-images.githubusercontent.com/20098740/175755730-c391779f-ca5d-4aad-bd96-a70b4750e8d7.gif)
-🌟ITS YOUR DREAM TOOLS🌟
-🌟FIRST USE THIS TOOLS🌟
+🌟ITS YOUR DREAM TOOLS
+🌟FIRST USE THIS TOOLS
 🌟AFTER TRUST MY WORDS
 🌟THANKS TO MY ALLAH🌟
 
