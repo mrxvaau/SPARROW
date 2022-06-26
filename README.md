@@ -64,6 +64,8 @@
 
 🌟 python sparrow.py
 
-👽TRAIL IS ONLY 2DAY👽
+👽TRAIL IS EXPIRED👽
 
-👽INBOX FOR TRAIL KEY👽
+👽INBOX FOR PAID👽
+
+👽MONTHLY 500BDT
